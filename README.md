@@ -2,7 +2,7 @@
 
 最新地址：[fengshanjiasu.top](https://panel.fengshanjiasu.top/#/register?code=THDsJdQl)
 
-## 风扇加速加速
+## 风扇加速介绍
 
 风扇加速机场，流媒体全解锁，解锁 chatgpt。
 
