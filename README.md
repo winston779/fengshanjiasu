@@ -1,6 +1,6 @@
 # 风扇加速官网地址
 
-最新地址：[fengshanjiasu.top](https://panel.fengshanjiasu.top/#/register?code=THDsJdQl)
+最新地址：[fengshanjiasu.top](https://fengshanjiasu.one/#/register?code=THDsJdQl)
 
 ## 风扇加速介绍
 
